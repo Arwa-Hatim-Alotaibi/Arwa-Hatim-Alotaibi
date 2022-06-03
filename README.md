@@ -1,0 +1,4 @@
+- 🙋‍♀️ Hi, I’m @Arwa-Hatim-Alotaibi
+- 🤩 I’m interested in design
+- 💻 I’m currently learning UI/UX
+- 📩 How to reach me arwa.hatim.alotaibi@gmail.com
